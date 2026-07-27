@@ -1,0 +1,1 @@
+These transcriptions are for the full raw audio recordings for the 6/26 data collect session
